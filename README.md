@@ -1,4 +1,4 @@
-#Stop-the-War-in-Ukraine Research
+# Stop-the-War-in-Ukraine Research
 
 Open Research Project Dedicated to Non-Violent Termination of War in Ukraine
 
